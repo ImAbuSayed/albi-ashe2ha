@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور العين قلبي يناديك
+> في ليل الشوق روحي تناجيك
+> نار الهوى تحرقني وتدنيك
+> همس الشفاه بالغرام يرويك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
